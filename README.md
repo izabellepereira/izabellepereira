@@ -1,16 +1,13 @@
-## Hi there 👋
+## Boas vindas ao meu perfil💚
 
-<!--
-**izabellepereira/izabellepereira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Izabelle 
 
-Here are some ideas to get you started:
+-Sou cabeleleira 
+- Estou terminando o ensino medio
+- Estou em um relacionamento com alguem que amo
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ##VOCÊ PODE ENTRAR EM CONTATO COMIGO! 📧
+
+   ![](https://media.tenor.com/6HdySNL-OGEAAAAM/peace-out-peace-sign.gif)
+
+  izabelle.pereira@icloud.com  
